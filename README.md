@@ -1,7 +1,7 @@
 # MR ERROR X KITTY 
 <br> [![FACEBOOK](https://img.shields.io/badge/Facebook-MR.ERROR-blue?style=flat-square&logo=facebook)](https://www.facebook.com/kittyyypogi)<br> [![WHATSAPP](https://img.shields.io/badge/WhatsApp-MR.ERROR-blue?style=flat-square&logo=WhatsApp)](https://wa.me/639565603642)
 
-<h3 align="center"> NEW AUTO CREATE PRO TOOLS </h3>
+<h3 align="center"> NEW FILE & RANDOM & OLD & INSTAGRAM & AUTO CREATE PRO TOOLS </h3>
 
 ## <b>Installation</b>
 
